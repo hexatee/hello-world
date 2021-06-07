@@ -4,3 +4,8 @@ I grupa :
 Pieczarka Patryk, Konrad Błaszkiewicz
 II grupa:
 Śledź Adrian, Rościszewski Adrian
+
+
+CC 
+2137
+666
